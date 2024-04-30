@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 DUA Shaikh
 
 <!--
 **Dua-Shaikh04/Dua-Shaikh04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
